@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marksunspace
-- 👀 I’m interested in coding,i want to be a raper one day,nice to meet ya bro.
-"cumt" if you konw what's it means,welcome to chat with me
+- 👀 I’m interested in coding, i want to be a raper one day, nice to meet ya bro.
+Welcome to chat with me
 my email:sunminjian668@gmail.com
 <!---
 marksunspace/marksunspace is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
